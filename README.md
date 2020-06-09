@@ -1,1 +1,0 @@
-# sergeyDanila.github.io
